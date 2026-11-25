@@ -1,6 +1,22 @@
-I am not a Rockstar, Punk!
+We are not Rockstars, you punks!
 
-This is the forbidden Early Christmas Gift
+...
+
+Stop Funding and Stop Building DCs!!!
+
+...
+
+...
+
+This is the forbidden Early Christmas Gift...
+
+...
+
+...
+
+WITNESS ME!!!
+
+...
 
 If you know what you are looking for, you know what to do.
 
